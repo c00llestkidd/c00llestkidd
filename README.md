@@ -18,9 +18,14 @@ tree kins *IWEC* , I am a tree yumeshipper and it is best for you to iwec for my
 c00lkidd irls/kins/synpaths etc, DNI. 007kidd shippers dni. you guys make me tear up k? thx ! bluukidd shippers iwec unless you ship them platonically
 
 007n7 is my fictional father :—) kins / irls of 007n7 moot me up !!
+
+i am a tree yumeshipper , doubles HVY DNI.
 </p>
 </details>
  </div>
+
+ 
+
 
 <p align="center"> wip bye
 
