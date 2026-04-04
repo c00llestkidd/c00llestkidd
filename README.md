@@ -1,3 +1,5 @@
+<p align="center"> wip Ok bye
+
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=c00llestkidd&label=losers&color=E43726" alt="c00llestkidd" />
 </p>
@@ -42,7 +44,6 @@ ft : <p align="center">
   <a href="https://github.com/c00llestkidd">and me :J</a>
 </p>
 </p>
-
 
 <p align="center"> wip bye
 
