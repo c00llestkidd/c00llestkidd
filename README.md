@@ -27,6 +27,23 @@ i am a tree yumeshipper , doubles HVY DNI.
  
 
 
+<div align="center">
+<details>
+ <summary>$${\color{#A60F16} k}$$</summary></summary>
+ <p>
+   
+![IMG_2967](https://github.com/user-attachments/assets/50402578-dae8-47b2-b765-5e1b44192a63)
+me and the #gang :9 
+
+ft : <p align="center">
+  <a href="https://github.com/bluudude">@bluudude</a><p align="center">
+  <a href="https://github.com/pr3ttiestpriincess">@pr3ttiestpriincess</a>
+</p><p align="center">
+  <a href="https://github.com/c00llestkidd">and me :J</a>
+</p>
+</p>
+
+
 <p align="center"> wip bye
 
 
