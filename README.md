@@ -21,7 +21,9 @@ c00lkidd irls/kins/synpaths etc, DNI. 007kidd shippers dni. you guys make me tea
 
 007n7 is my fictional father :—) kins / irls of 007n7 moot me up !!
 
-i am a tree yumeshipper , doubles HVY DNI.
+i am atree yumeshipper , doubles HVY DNI.
+
+im in the forsaken fandom, thou i do NOT support the creator and i never will.
 </p>
 </details>
  </div>
